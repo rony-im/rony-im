@@ -9,7 +9,7 @@
 - https://www.linkedin.com/in/ronaldo-ipiales/
 - Wpp: +593 8723 9591
 
-I'll upload all my proyects here so you can take a look and make use of them if you consider.
+I'll upload all my projects here so you can take a look and make use of them if you consider.
 
 You can also tell me if it's good or if it needs to be changed (I hope for the first option).
 
